@@ -9,7 +9,7 @@ tips are appreciated since im new to this okay wow
  
 ## hellooo im rein this is stuff about me ok thanks
 
-## Caution .ᐟ
+## Before you follow .ᐟ
 ### I make fat jokes and i criticise as a joke 
  i dont mean any of that, i cherish my friends alot and thats just my way of joking but if ur gonna confront me about it idm i can explain myself if that makes u feel better
 
@@ -17,10 +17,13 @@ tips are appreciated since im new to this okay wow
  i dont play about that deadass so dont be weird idc if this is corny thanks
 
 ### my humor can be something else sometimes so please just block me if you dont like it, i mean it okay
-as i said i do not MEAN any of those jokes, im actively trying to change thanks and dont act suprised and flame me for blocking you first, i warned you ok
+as i said i do not MEAN any of those jokes, im actively trying to change thanks and dont act suprised if i blocked you, i warned you ok
 
 ### if you dont like anything about me just dni please thanksyou
 idc if this sounds corny ok i mean it
+
+### im a prochoice
+if your prolife ill think less of you and i will block you sooner or later ok. im deadass
 
 
 ##  About Me ദ്ദി◝ ⩊ ◜.ᐟ !
@@ -35,7 +38,7 @@ i might be dry sometimes but i dont mean that
 i would love to become friends with yall but im too shy , busy or distracted sometimes so u might have to approach me (w2i preferably)
 i love making friends okay
 
-I latch onto people quickly when we become friends, theres exceptions
+I latch onto people quickly, theres exceptions
 
 idm matching just ask me first
 
@@ -43,13 +46,15 @@ i do things before i think so umm im actively working on that ok but tell me if 
 
 im not playing ponytown often (imo) so you´ll have to ask me to play
 
-i dont like just mzen ok im not that lame i also like polyniigo mfen mznen (mizunene) nenekasa and etc
+i dont like just mzen ok i also like polyniigo mfen mznen (mizunene) nenekasa and etc
 
 im most of the time with my friends ok
 
 i will think less of you if your interests are weird (imo)
 
 when im with someone ask me first (in whisper) before c+h thanks ok
+
+i dont like vcing but if we are then i trust you ok
 
 # my kins are uhhh mizuki, ena, mafuyu, airi sezaki, sua, ame ( nso ) asuka langley , rabbids, kaguya from cosmic princess, sendai hazuki ok thats it i think
 
