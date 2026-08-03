@@ -20,11 +20,7 @@ tips are appreciated since im new to this okay wow
 as i said i do not MEAN any of those jokes, im actively trying to change thanks and dont act suprised if i blocked you, i warned you ok
 
 ### if you dont like anything about me just dni please thanksyou
-idc if this sounds corny ok i mean it
-
-### im a prochoice
-if your prolife ill think less of you and i will block you sooner or later ok. im deadass
-
+idc if this sounds corny ok i mean ii
 
 ##  About Me ദ്ദി◝ ⩊ ◜.ᐟ !
 c+h is welcome, i just might start a conversation
