@@ -7,7 +7,7 @@
 # Reins INFO <𝟑 .ᐟ
 tips are appreciated since im new to this okay wow
  
-## hellooo im rein this is stuff about me ok thanks
+## hellooo im rein / rezuki this is stuff about me ok? thanks!! 
 
 ## Before you follow .ᐟ
 ### I make fat jokes and i criticise as a joke 
@@ -19,19 +19,17 @@ tips are appreciated since im new to this okay wow
 ### my humor can be something else sometimes so please just block me if you dont like it, i mean it okay
 as i said i do not MEAN any of those jokes, im actively trying to change thanks and dont act suprised if i blocked you, i warned you ok
 
-### if you dont like anything about me just dni please thanksyou
-idc if this sounds corny ok i mean ii
+### if you dont like anything about me just dni <---  please thanksyou!! 
+idc if this sounds corny ok i mean it
 
 ##  About Me ദ്ദി◝ ⩊ ◜.ᐟ !
 c+h is welcome, i just might start a conversation
 
-if we end up sitting in a group i might move, yes you can joke about it
-
 i take jokes easily, just dont overdo them
 
-i might be dry sometimes but i dont mean that
+i MIGHT be dry sometimes but i dont mean that
 
-i would love to become friends with yall but im too shy , busy or distracted sometimes so u might have to approach me (w2i preferably)
+i would love to become friends with yall but im too busy or distracted sometimes so u might have to approach me (w2i preferably)
 i love making friends okay
 
 I latch onto people quickly, theres exceptions
@@ -68,6 +66,7 @@ by that i mean my skin on ponytown, if you wanna take inspo from smth else ask m
 ![imagealt](https://files.catbox.moe/1idmhu.png)
 
 # thanks miya for this ok and plus boy mizuki
+SORRY IF THIS SOUND TRANSPHOBIC IM NOT MIZUBOY BELIEVER EWWWW
 ![imagealt](https://files.catbox.moe/ue9jxu.png)
 ![imagealt](https://files.catbox.moe/mm6vkk.png)
 
