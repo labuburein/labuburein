@@ -1,4 +1,4 @@
-![imagealt](https://files.catbox.moe/6gfrqq.png)
+![imagealt](https://files.catbox.moe/4fby6z.gif)
 ![Static Badge](https://img.shields.io/badge/ena%20airi%20-and%20mizuki%20fic%20kin-black)
 ⁽ᵐᵃⁱⁿˡʸ ᵃⁱʳⁱ ᵒᵏ ᵈᵒⁿᵗ ˢˡⁱᵐᵉ ᵐᵉ. ⁱᵈᶜ ᵃᵇᵒᵘᵗ ᵈᵒᵘᵇˡᵉˢ.ᵃⁱʳⁱ ˢᵉᶻᵃᵏⁱ ⁿᵒᵗ ᵃⁱʳⁱ ᵐᵒᵐᵒⁱ ᵗʸ⁾
 # ill fix dis soon
