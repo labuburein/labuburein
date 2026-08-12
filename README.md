@@ -1,7 +1,7 @@
 ![imagealt](https://files.catbox.moe/6gfrqq.png)
 ![Static Badge](https://img.shields.io/badge/ena%20airi%20-and%20mizuki%20fic%20kin-black)
 ⁽ᵐᵃⁱⁿˡʸ ᵃⁱʳⁱ ᵒᵏ ᵈᵒⁿᵗ ˢˡⁱᵐᵉ ᵐᵉ. ⁱᵈᶜ ᵃᵇᵒᵘᵗ ᵈᵒᵘᵇˡᵉˢ.ᵃⁱʳⁱ ˢᵉᶻᵃᵏⁱ ⁿᵒᵗ ᵃⁱʳⁱ ᵐᵒᵐᵒⁱ ᵗʸ⁾
-
+# ill fix dis soon
 " 𝘉𝘶𝘵 𝘸𝘪𝘵𝘩 𝘦𝘷𝘦𝘳𝘺𝘣𝘰𝘥𝘺 𝘸𝘢𝘵𝘤𝘩𝘪𝘯𝘨 𝘶𝘴, 𝘰𝘶𝘳 𝘦𝘷𝘦𝘳𝘺 𝘮𝘰𝘷𝘦, 𝘸𝘦 𝘥𝘰 𝘩𝘢𝘷𝘦 𝘳𝘦𝘱𝘶𝘵𝘢𝘵𝘪𝘰𝘯𝘴 "
 
 # Reins INFO <𝟑 .ᐟ
