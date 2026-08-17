@@ -76,5 +76,4 @@ by that i mean my skin on ponytown, if you wanna take inspo from smth else ask m
 # thanks miya for this ok and plus boy mizuki
 SORRY IF THIS SOUND TRANSPHOBIC IM NOT MIZUBOY BELIEVER EWWWW
 ![imagealt](https://files.catbox.moe/ue9jxu.png)
-![imagealt](https://files.catbox.moe/mm6vkk.png)
 </div>
