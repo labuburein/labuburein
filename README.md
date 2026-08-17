@@ -13,7 +13,7 @@ tips are appreciated since im new to this okay wow
 
 ![imagealt](https://files.catbox.moe/4fby6z.gif)
  
-<div align="center">##hellooo im rein / rezuki this is stuff about me ok? thanks!!</div>
+## <div align="center">hellooo im rein / rezuki this is stuff about me ok? thanks!!</div>
 
 ## Before you follow .ᐟ
 ### I make fat jokes and i criticise as a joke 
