@@ -6,6 +6,11 @@
 
 # Reins INFO <𝟑 .ᐟ
 tips are appreciated since im new to this okay wow
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31poqamd654sxscgpgef24omybpi&cover_image=true&theme=default&show_offline=true&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=ffd6ea&bar_color_cover=true">
+  </a>
+</p>
  
 ## hellooo im rein / rezuki this is stuff about me ok? thanks!! 
 
