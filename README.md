@@ -11,7 +11,7 @@
 # <div align="center">Reins INFO <𝟑 .ᐟ</div>.
 tips are appreciated since im new to this okay wow
 
-<div align="center">![imagealt](https://files.catbox.moe/4fby6z.gif)</div>
+[imagealt](https://files.catbox.moe/4fby6z.gif)
  
 ## <div align="center">hellooo im rein / rezuki this is stuff about me ok? thanks!!</div>
 # <div align="center">Before you follow .ᐟ</div>.
