@@ -61,9 +61,6 @@ i dont like vcing but if we are then i trust you ok
 
 # my kins are uhhh mizuki, ena, mafuyu, airi sezaki, sua, ame ( nso ) asuka langley , rabbids, kaguya from cosmic princess, sendai hazuki ok thats it i think
 
-![imagealt](https://files.catbox.moe/vkwa6t.mp4)
-# my hg
-
 
 ## My interests
 : pjsk ,alien stage ,married in red ,chiikawa ,phighting class Ouran High School Host Club ,pupi's midnight munchies Danganronpa , saihate station, i love your cruddy, witch hat atelier, nso and thats it i think
