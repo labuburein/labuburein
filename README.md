@@ -22,6 +22,8 @@ as i said i do not MEAN any of those jokes, im actively trying to change thanks 
 ### if you dont like anything about me just dni <---  please thanksyou!! 
 idc if this sounds corny ok i mean it
 
+### i cant properly express how i feel, idk i cant help it so sorry if i seem distant
+
 ##  About Me ദ്ദി◝ ⩊ ◜.ᐟ !
 c+h is welcome, i just might start a conversation
 
