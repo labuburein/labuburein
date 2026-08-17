@@ -8,7 +8,7 @@
 
 ⁽ᵐᵃⁱⁿˡʸ ᵃⁱʳⁱ ᵒᵏ ᵈᵒⁿᵗ ˢˡⁱᵐᵉ ᵐᵉ. ⁱᵈᶜ ᵃᵇᵒᵘᵗ ᵈᵒᵘᵇˡᵉˢ.ᵃⁱʳⁱ ˢᵉᶻᵃᵏⁱ ⁿᵒᵗ ᵃⁱʳⁱ ᵐᵒᵐᵒⁱ ᵗʸ⁾
 
-# <div align="center">Reins INFO <𝟑 .ᐟ</div>.
+# <div align="center">Reins INFO <𝟑 .ᐟ</div>
 tips are appreciated since im new to this okay wow
 
 ![imagealt](https://files.catbox.moe/4fby6z.gif)
