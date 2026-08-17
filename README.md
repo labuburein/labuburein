@@ -4,8 +4,8 @@
   </a>
 </p>
 
-![Static Badge](https://img.shields.io/badge/ena%20airi%20-and%20mizuki%20fic%20kin-black)
-⁽ᵐᵃⁱⁿˡʸ ᵃⁱʳⁱ ᵒᵏ ᵈᵒⁿᵗ ˢˡⁱᵐᵉ ᵐᵉ. ⁱᵈᶜ ᵃᵇᵒᵘᵗ ᵈᵒᵘᵇˡᵉˢ.ᵃⁱʳⁱ ˢᵉᶻᵃᵏⁱ ⁿᵒᵗ ᵃⁱʳⁱ ᵐᵒᵐᵒⁱ ᵗʸ⁾</div>
+<div align="center">![Static Badge](https://img.shields.io/badge/ena%20airi%20-and%20mizuki%20fic%20kin-black)<
+⁽ᵐᵃⁱⁿˡʸ ᵃⁱʳⁱ ᵒᵏ ᵈᵒⁿᵗ ˢˡⁱᵐᵉ ᵐᵉ. ⁱᵈᶜ ᵃᵇᵒᵘᵗ ᵈᵒᵘᵇˡᵉˢ.ᵃⁱʳⁱ ˢᵉᶻᵃᵏⁱ ⁿᵒᵗ ᵃⁱʳⁱ ᵐᵒᵐᵒⁱ ᵗʸ⁾
 
 # <div align="center">Reins INFO <𝟑 .ᐟ</div>.
 tips are appreciated since im new to this okay wow
