@@ -61,6 +61,8 @@ i dont like vcing but if we are then i trust you ok
 
 # my kins are uhhh mizuki, ena, mafuyu, airi sezaki, sua, ame ( nso ) asuka langley , rabbids, kaguya from cosmic princess, sendai hazuki ok thats it i think
 
+![imagealt](![imagealt](https://files.catbox.moe/4fby6z.gif))
+# my hg
 
 
 ## My interests
