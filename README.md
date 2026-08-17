@@ -8,14 +8,14 @@
 ⁽ᵐᵃⁱⁿˡʸ ᵃⁱʳⁱ ᵒᵏ ᵈᵒⁿᵗ ˢˡⁱᵐᵉ ᵐᵉ. ⁱᵈᶜ ᵃᵇᵒᵘᵗ ᵈᵒᵘᵇˡᵉˢ.ᵃⁱʳⁱ ˢᵉᶻᵃᵏⁱ ⁿᵒᵗ ᵃⁱʳⁱ ᵐᵒᵐᵒⁱ ᵗʸ⁾
 
 # <div align="center">Reins INFO <𝟑 .ᐟ
-tips are appreciated since im new to this okay wow
+<div align="center"> tips are appreciated since im new to this okay wow
 
 ![imagealt](https://files.catbox.moe/4fby6z.gif)
  
-## <div align="center">hellooo im rein / rezuki this is stuff about me ok? thanks!!</div>
+## hellooo im rein / rezuki this is stuff about me ok? thanks!!</div>
 # Before you follow .ᐟ</div>.
 
-<div align="center">### I make fat jokes and i criticise as a joke 
+<div align="center"> I make fat jokes and i criticise as a joke 
  i dont mean any of that, i cherish my friends alot and thats just my way of joking but if ur gonna confront me about it idm i can explain myself if that makes u feel better
 
 ### If you ghost me im blocking/breaking contact/confronting wow okay thanks 
