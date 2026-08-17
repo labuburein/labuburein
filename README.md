@@ -4,7 +4,8 @@
   </a>
 </p>
 
-<div align="center">![Static Badge](https://img.shields.io/badge/ena%20airi%20-and%20mizuki%20fic%20kin-black)
+<div align="center">
+  ![Static Badge](https://img.shields.io/badge/ena%20airi%20-and%20mizuki%20fic%20kin-black)
 
 ⁽ᵐᵃⁱⁿˡʸ ᵃⁱʳⁱ ᵒᵏ ᵈᵒⁿᵗ ˢˡⁱᵐᵉ ᵐᵉ. ⁱᵈᶜ ᵃᵇᵒᵘᵗ ᵈᵒᵘᵇˡᵉˢ.ᵃⁱʳⁱ ˢᵉᶻᵃᵏⁱ ⁿᵒᵗ ᵃⁱʳⁱ ᵐᵒᵐᵒⁱ ᵗʸ⁾</div>
 
