@@ -63,13 +63,13 @@ i dont like vcing but if we are then i trust you ok
 
 
 
-![imagealt](https://files.catbox.moe/ujneua.png)
+![imagealt](https://files.catbox.moe/868dl7.png)
 ## My interests
 : pjsk ,alien stage ,married in red ,chiikawa ,phighting class Ouran High School Host Club ,pupi's midnight munchies Danganronpa , saihate station, i love your cruddy, witch hat atelier, nso and thats it i think
 
 ## Inspos are appreciated,  im glad someone likes my style
 by that i mean my skin on ponytown, if you wanna take inspo from smth else ask me / let me know
-
+![imagealt](https://files.catbox.moe/zf3gr2.png)
 
 # hi chuds
 ![imagealt](https://files.catbox.moe/1idmhu.png)
