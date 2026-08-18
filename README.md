@@ -13,7 +13,7 @@
 
 ![imagealt](https://files.catbox.moe/4fby6z.gif)
  
-# <div align="center"> hellooo im rein / rezuki this is stuff about me ok? thanks!!</div>
+# <div align="center"> hellooo im rein this is stuff about me ok? thanks!!</div>
 
 ## <div align="center"> Before you follow .ᐟ</div>.
 
