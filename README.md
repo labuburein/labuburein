@@ -7,10 +7,5 @@
 
 ![Static Badge](https://img.shields.io/badge/ena%20airi%20-and%20mizuki%20fic%20kin-black)
 
-
-
-
-# hi chuds
-![imagealt](https://files.catbox.moe/ny9o0c.png)
 ![imagealt](https://files.catbox.moe/868dl7.png)
 </div>
