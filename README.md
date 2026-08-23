@@ -3,7 +3,7 @@
 [૮ ㆍﻌ - ა ‎𖹭 ₍^ﹷ ‸ ﹷ^₎ ﾉ](https://github.com/sleepysenyagi) </div> 
 
 ### <div align="center"> 𑣲 my ata book </div> 
-<div align="center"> [✎ ✉︎ ꒱](https://chinchillamzen.atabook.org/) </div> 
+[✎ ✉︎ ꒱](https://chinchillamzen.atabook.org/) </div> 
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
