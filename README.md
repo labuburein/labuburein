@@ -8,5 +8,7 @@
 <div align="center"> dni if u dont like something abt me ok </div>
 <div align="center"> idc if this sounds corny i mean it 
 
-### Everything is here 
+### 𑣲 Everything is here 
 [૮ ㆍﻌ - ა ‎𖹭 ₍^ﹷ ‸ ﹷ^₎ ﾉ](https://github.com/sleepysenyagi) </div>
+𑣲 my ata book
+[✎ ✉︎ ꒱ ](https://github.com/sleepysenyagi)
