@@ -1,8 +1,8 @@
 
-<div align="center"> 𑣲 Everything is here 
-[૮ ㆍﻌ - ა ‎𖹭 ₍^ﹷ ‸ ﹷ^₎ ﾉ](https://github.com/sleepysenyagi) 
+### <div align="center"> 𑣲 Everything is here 
+[૮ ㆍﻌ - ა ‎𖹭 ₍^ﹷ ‸ ﹷ^₎ ﾉ](https://github.com/sleepysenyagi) </div> 
 
-### 𑣲 my ata book
+### <div align="center"> 𑣲 my ata book
 [✎ ✉︎ ꒱ ](https://chinchillamzen.atabook.org/) </div> 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
