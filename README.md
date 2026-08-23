@@ -1,5 +1,5 @@
 ![imagealt](https://files.catbox.moe/5wf9ca.png)
-# <div align="center"> dni if u dont like something
+# <div align="center"> dni if u dont like something abt me ok
 <div align="center"> idc if this sounds corny i mean it </div>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
