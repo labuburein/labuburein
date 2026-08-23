@@ -12,4 +12,4 @@
 [૮ ㆍﻌ - ა ‎𖹭 ₍^ﹷ ‸ ﹷ^₎ ﾉ](https://github.com/sleepysenyagi) 
 
 ### 𑣲 my ata book
-[✎ ✉︎ ꒱ ](https://github.com/sleepysenyagi) </div>
+[✎ ✉︎ ꒱ ](https://chinchillamzen.atabook.org/) </div>
