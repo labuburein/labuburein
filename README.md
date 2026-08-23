@@ -8,4 +8,4 @@
 <div align="center"> dni if u dont like something abt me ok </div>
 <div align="center"> idc if this sounds corny i mean it 
 
-Everything is here [here](https://github.com/sleepysenyagi) </div>
+# Everything is here [here](https://github.com/sleepysenyagi) </div>
