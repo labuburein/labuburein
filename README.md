@@ -2,7 +2,7 @@
 
 [૮ ㆍﻌ - ა ‎𖹭 ₍^ﹷ ‸ ﹷ^₎ ﾉ](https://github.com/sleepysenyagi).
 
-### 𑣲 my ata book
+ 𑣲 my ata book
 
 [✎ ✉︎ ꒱](https://chinchillamzen.atabook.org/) </div>
 
