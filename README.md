@@ -1,5 +1,6 @@
 𑣲 Everything is here
-[૮ ㆍﻌ - ა ‎𖹭 ₍^ﹷ ‸ ﹷ^₎ ﾉ](https://github.com/sleepysenyagi)
+[૮ ㆍﻌ - ა ‎𖹭 ₍^ﹷ ‸ ﹷ^₎ ﾉ](https://github.com/sleepysenyagi).
+
 𑣲 my ata book
 [✎ ✉︎ ꒱](https://chinchillamzen.atabook.org/)
 
