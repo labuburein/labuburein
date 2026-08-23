@@ -11,11 +11,6 @@
 
 
 # hi chuds
-![imagealt](https://files.catbox.moe/1idmhu.png)
 ![imagealt](https://files.catbox.moe/ny9o0c.png)
-
-# thanks miya for this ok and plus boy mizuki
-im not mizuboy believer
-![imagealt](https://files.catbox.moe/ue9jxu.png)
 ![imagealt](https://files.catbox.moe/868dl7.png)
 </div>
