@@ -1,6 +1,6 @@
 <div align="center"> 𑣲 Everything is here
 
-[૮ ㆍﻌ - ა ‎𖹭 ₍^ﹷ ‸ ﹷ^₎ ﾉ](https://sleepysenyagi.carrd.co/).
+[૮ ㆍﻌ - ა ‎𖹭 ₍^ﹷ ‸ ﹷ^₎ ﾉ](https://rentry.co/senyag1).
 
  𑣲 my ata book
 
