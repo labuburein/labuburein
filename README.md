@@ -15,4 +15,4 @@
 </p>
 
 <div align="center"> if my jokes are too weird 4 you then block me and move on
-
+<div align="center"> if i blocked you dni
