@@ -1,8 +1,8 @@
-<div align="center"> 𑣲 matching rentry w my idiot
+<div align="center"> 𑣲 my carrd
  
 ⬇ ⬇ ⬇ ⬇ 
 
-[૮ ㆍﻌ - ა ‎𖹭 ₍^ﹷ ‸ ﹷ^₎ ﾉ](https://rentry.co/senyag1).
+[૮ ㆍﻌ - ა ‎𖹭 ₍^ﹷ ‸ ﹷ^₎ ﾉ](https://meowmeowmeow67777.carrd.co/).
 
  𑣲 my ata book
 
