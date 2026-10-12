@@ -1,8 +1,4 @@
 <div align="center"> 𑣲 my carrd
- 
-⬇ ⬇ ⬇ ⬇ 
-
-[૮ ㆍﻌ - ა ‎𖹭 ₍^ﹷ ‸ ﹷ^₎ ﾉ](https://meowmeowmeow67777.carrd.co/).
 
  𑣲 my ata book
 
