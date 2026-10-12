@@ -1,4 +1,4 @@
-<div align="center"> 𑣲 my carrd
+<div align="center"> 
 
  𑣲 my ata book
 
