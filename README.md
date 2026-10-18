@@ -13,4 +13,4 @@
 <div align="center"> if my jokes are too weird 4 you then block me and move on
 <div align="center"> if i blocked you dni
  
- ![imagealt]( ![imagealt](https://files.catbox.moe/e5hgii.gif))
+ ![imagealt](![imagealt](https://files.catbox.moe/e5hgii.gif))
