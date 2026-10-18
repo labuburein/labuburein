@@ -2,8 +2,9 @@
 
  𑣲 my ata book
 
-[✎ ✉︎ ꒱](https://chinchillamzen.atabook.org/) </div>
-<div[rentry](https://rentry.co/senyag1)
+[✎ ✉︎ ꒱](https://chinchillamzen.atabook.org/) 
+
+[rentry](https://rentry.co/senyag1) </div>
 
 
 <p align="center">
