@@ -3,7 +3,7 @@
  𑣲 my ata book
 
 [✎ ✉︎ ꒱](https://chinchillamzen.atabook.org/) </div>
-<div [rentry](https://rentry.co/senyag1) </div>
+<div[rentry](https://rentry.co/senyag1)
 
 
 <p align="center">
