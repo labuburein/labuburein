@@ -3,6 +3,7 @@
  𑣲 my ata book
 
 [✎ ✉︎ ꒱](https://chinchillamzen.atabook.org/) </div>
+[rentry](https://rentry.co/senyag1)
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -12,5 +13,3 @@
 
 <div align="center"> if my jokes are too weird 4 you then block me and move on
 <div align="center"> if i blocked you dni
-
-![imagealt](https://files.catbox.moe/c1i9g3.gif)
