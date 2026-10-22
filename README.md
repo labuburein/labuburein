@@ -4,7 +4,7 @@
 
 [✎ ✉︎ ꒱](https://chinchillamzen.atabook.org/) 
 
-[rentry](https://mzennemwowoowowww.straw.page/)</div>
+[strawpage](https://mzennemwowoowowww.straw.page/)</div>
 
 
 <p align="center">
