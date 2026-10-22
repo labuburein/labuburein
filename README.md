@@ -4,7 +4,7 @@
 
 [✎ ✉︎ ꒱](https://chinchillamzen.atabook.org/) 
 
-[rentry](https://rentry.co/senyag1) </div>
+[rentry]([https://mzennemwowoowowww.straw.page/])</div>
 
 
 <p align="center">
